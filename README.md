@@ -1,2 +1,3 @@
 # kamis-kumis
-tugas
+kamis ini sangat indah
+
